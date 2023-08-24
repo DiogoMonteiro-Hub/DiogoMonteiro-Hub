@@ -6,4 +6,4 @@
 
 🔌 Meu interesse se expande para as entradas das redes de computadores, e estou explorando o curso de Estrutura e Funcionamento das Redes de Computadores, também oferecido pelo Google. A medida que mergulha mais fundo nesse universo, estou animado para conectar
 
-📫 Fique à vontade para entrar em contato comigo pelo monteirodiogo123@gmail.com ou conectar-se comigo no linkedin.com/in/diogo-monteiro-117449145/. Vamos trocar ideias e crescer juntos!
+📫 Fique à vontade para entrar em contato comigo pelo monteirodiogo123@gmail.com ou conectar-se comigo no www.linkedin.com/in/diogo-monteiro-117449145/. Vamos trocar ideias e crescer juntos!
